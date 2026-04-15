@@ -13,7 +13,8 @@ porque me interesa una rama en específico, la ciberseguridad (aunque sufra cuan
 
 Como datazo, cuento con un asistente cuando programo, mi mano derecha, no es nada menos que mi gato. **AMO LOS GATOS**
 
-
+![Kurama](Kurama.jpeg)
+(Se rindió D:>)
 
 
 
